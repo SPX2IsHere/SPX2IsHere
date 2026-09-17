@@ -450,6 +450,7 @@ fire just like the kids me.)
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 
 ![C00lkidd banner](https://i.pinimg.com/736x/8f/24/a5/8f24a51694c2dc84573f5a295cdbd789.jpg)
+
 .
 
 .
@@ -538,6 +539,7 @@ he also dislike water. love touch fire.)
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 
 ![C00lkidd banner 2](https://i.pinimg.com/736x/17/62/7e/17627e522f213b5c15e7378824b9e41e.jpg)
+
 .
 
 .
@@ -633,6 +635,7 @@ Wemmbu (We are chill i guess)
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 
 ![Parrot banner](https://i.pinimg.com/736x/dd/8a/76/dd8a762be6f2967176ea32a02f716dbe.jpg)
+
 .
 
 .
@@ -725,6 +728,7 @@ ask me anything! I know everything!
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 
 ![Verity banner](https://i.pinimg.com/736x/85/b6/48/85b648fec0787181f819a70183ca1130.jpg)
+
 .
 
 .
@@ -805,6 +809,7 @@ so i help her type if she is here!
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 
 ![Stalker banner](https://i.pinimg.com/736x/49/15/41/49154131d6c5e7cb72c2bd5db48ed863.jpg)
+
 .
 
 .
@@ -885,6 +890,7 @@ but of course Xeno's command go first.
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 
 ![Stanley banner](https://i.pinimg.com/1200x/87/ca/80/87ca808dd88c545081e00511a784c4b2.jpg)
+
 .
 
 .
@@ -982,6 +988,7 @@ None.
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 
 ![Wemmbu banner](https://i.pinimg.com/736x/73/45/9c/73459cb9f4f022402771392618e247b8.jpg)
+
 .
 
 .
@@ -1073,7 +1080,7 @@ None.
 Relationships:
 
 None.
-   
+
 
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 
