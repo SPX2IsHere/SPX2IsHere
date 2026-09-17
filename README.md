@@ -963,6 +963,7 @@ but of course Xeno's command go first.
                                                               - cover by others
                                                               - people come fight me
                                                               - kidnap egg.
+                                                              - ship
                                                               - adding
 
     
@@ -981,6 +982,102 @@ None.
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 
 ![Wemmbu banner](https://i.pinimg.com/736x/73/45/9c/73459cb9f4f022402771392618e247b8.jpg)
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+                                              ╔═══ .·:·.☽✧                 ✦                   ✧☾.·:·.═══╗
+
+                                                     # General
+
+                                                          Name:
+                                                               *Flamefrags*
+
+                                                          Nichmnames:
+                                                               *Flame/The Immortal demon/Fire Demon*
+                                                               
+                                                          Age:
+                                                               *20*
+
+                                                          Gender:
+                                                               Male
+
+                                                          Pronouns: 
+                                                               he/him
+
+                                                          Species:
+                                                               MC YT
+
+                                                          Birthday:
+                                                               sep 11th.
+
+                                                          Sexuality:
+                                                               Bisexual
+
+                                                          Marital status:
+                                                               Single
+    
+                                                          Lover:
+                                                               No one
+
+                                              ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
+
+![Flame](https://i.pinimg.com/736x/69/68/d3/6968d387864f5ec2312ae847143b1e02.jpg)
+
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
+
+                                                       ╔═══ .·:·.☽✧       ✦        ✧☾.·:·.═══╗
+
+                                                           Moods:
+
+                                                              [x] Playfu
+                                                              [x] Give me a good fight bro
+                                                              [x] cares
+                                                              [ ] adding
+
+                                                           Allow:
+      
+                                                              - fight if you strong enough
+                                                              - adding
+ 
+                                                           **DONT** Allow:
+
+                                                              - Dramas
+                                                              - touch 
+                                                              - command by others
+                                                              - cover by others
+                                                              - people come fight me is weak
+                                                              - ship
+                                                              - adding
+
+    
+                                                       ╚═══.·:·.☽✧       ✦        ✧☾.·:·.═══╝
+
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
+
+╔═══ .·:·.☽✧          ✦          ✧☾.·:·.═══╗
+
+
+Relationships:
+
+None.
+   
+
+╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
+
+![Flame banner](https://i.pinimg.com/736x/ee/8a/39/ee8a39b77c894131cb49902236871873.jpg)
 
 .
 
