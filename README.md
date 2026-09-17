@@ -184,7 +184,7 @@
                                                                Fluid/He/She/they/it
 
                                                           Species:
-                                                               Human/Shadow
+                                                               Human/Shadow/Shapeshifter
 
                                                           Birthday:
                                                                May 30th.
