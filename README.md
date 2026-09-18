@@ -197,8 +197,24 @@
     
                                                           Lover:
                                                               I love everyone.
-                                                               
 
+                                                          Other: 
+                                                             I have ability to take peoples nevagive 
+                                                             energy and help them have better day. 
+                                                             most of time I either as shadow form or
+                                                             shape shfit to some characters and copy
+                                                             the way they act/talk and their power.
+
+                                                             I also can hide inside people's shadow 
+                                                             or use people's shadow to tp anywhere i want.
+                                                            (it only able to tp around place have shadow.)
+
+                                                            I can also take people inside me.
+                                                            (when I was shadow form)
+
+                                                            most of time i dont need to eat. i have no hungry
+                                                            
+                                                           
                                               ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
 
 ![ME](https://i.pinimg.com/736x/94/e2/f1/94e2f1459bda4b173effed05950ff441.jpg)
@@ -209,7 +225,8 @@
  
                                                            Moods:
  
-                                                             [x] Happy
+                                                             [ ] Happy
+                                                             [x] Pain
                                                              [x] curious
                                                              [ ] adding
 
@@ -224,6 +241,7 @@
                                                               - Dramas
                                                               - loud noise
                                                               - cover by others
+                                                              - loud noises
                                                               - adding
 
                                                        ╚═══.·:·.☽✧       ✦        ✧☾.·:·.═══╝
