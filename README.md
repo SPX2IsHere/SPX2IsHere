@@ -1446,6 +1446,62 @@ None.
 
 ![Sarah](https://cdn.pluralkit.me/images/wt/7fw32n2u426jdnbc2bbd4lz4.webp)
 
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+                                                
+                                                          Name: *¥*?€<+?’ï;**
+                                                          Age: *???*
+                                                          Pronouns: *They/It/He*
+                                                          Species: *Shadow*
+                                                          Birthday: *Don't exist*
+                                                          Sexuality: *Acearo*
+
+                                                          Idk.. I just got here. 
+                                                          idk who am i or my name..
+                                                          but i know im a black thing 
+                                                          sometimes with 
+                                                          red/yellow/white eyes.
+                                                          thats all
+
+![noname](https://i.pinimg.com/1200x/40/f9/f0/40f9f08f5e5ae008c2db43e0bac57a7d.jpg)
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+                                                
+                                                          Name: *Stocking*
+                                                          Age: *???*
+                                                          Pronouns: *She/Her*
+                                                          Species: *Angel/Demon*
+                                                          Sexuality: *Bi/Ace*
+
+![Stocking](https://i.pinimg.com/1200x/f3/8b/fe/f38bfe44a43291c652e16e18ad5de8c0.jpg)
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+                                                
+                                                          Name: *Koro Sensei*
+                                                          Age: *34*
+                                                          Pronouns: *He/Him*
+                                                          Species: *Human?*
+                                                          Sexuality: *Straight*
+
+![Koro sensei](https://i.pinimg.com/736x/fa/04/2a/fa042afb599d1bc9e1398208de29766b.jpg)
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+                                                
+                                                          Name: *Aqua Hoshino*
+                                                          Age: *18*
+                                                          Pronouns: *He/Him*
+                                                          Sexuality: *Straight*
+
+![Aqua](https://i.pinimg.com/736x/24/af/e2/24afe215dcff1ffc192ec508f705f7ad.jpg)
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+                                                
+                                                          Name: *Harlequin*
+                                                          Age: *???*
+                                                          Pronouns: *He/Him*
+                                                          Sexuality: *Straight*
+
+![Harlequin](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSN3g9P0cL9OT_Se0NxiOaOfLpUmlaKnTdBieJ8OkgjsGIHJrKfLN2sK20&s=10)
+
                                               ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
 
 
