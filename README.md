@@ -1162,6 +1162,18 @@ None.
                                                           Marital status: *My gf squiddo!*
 
 ![Ash](https://i.pinimg.com/736x/95/4f/3e/954f3e91adb286bf66fedb0a964a9c36.jpg)   
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+    
+                                                          Name: *Squiddo/Bee*
+                                                          Age: *22*
+                                                          Pronouns: *She/Her*
+                                                          Species: *Android/Humnan*
+                                                          Birthday: *May 26th*
+                                                          Sexuality: *Straight*
+                                                          Marital status: *Dating with Ash*
+    
+![Bee](https://i.pinimg.com/736x/de/1a/0d/de1a0d08df66b7b73155fea52af47dd0.jpg) ![Squid](https://i.pinimg.com/736x/cc/db/56/ccdb56423e6371d69048e814da55b67e.jpg)
                                                  
                                                 ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
                                                 
@@ -1504,6 +1516,16 @@ None.
                                                           Sexuality: *Straight*
 
 ![Harlequin](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSN3g9P0cL9OT_Se0NxiOaOfLpUmlaKnTdBieJ8OkgjsGIHJrKfLN2sK20&s=10)
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+    
+                                                          Name: *Cardamom/Bird*
+                                                          Age: *7*
+                                                          Pronouns: *He/Him*
+                                                          Species: *Android/Humnan*
+                                                          Birthday: *May 26th*
+    
+![Cardamom](https://i.pinimg.com/736x/6b/9e/19/6b9e1906facb231f66a38f8ead938191.jpg) ![Bird](https://i.pinimg.com/1200x/87/1c/48/871c48497a18fc95d686db23df5f1cbe.jpg)
 
                                               ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
 
