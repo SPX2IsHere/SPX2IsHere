@@ -243,7 +243,10 @@
 
                                                               - Dramas
                                                               - loud noise
-                                                              - cover by others
+                                                              - cover by others Uless you are 
+                                                                My Friend/Close Friend/Partner 
+                                                                (if you are my friend's friends 
+                                                                please ask first.)
                                                               - loud noises
                                                               - adding
 
