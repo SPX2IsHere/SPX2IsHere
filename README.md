@@ -202,6 +202,7 @@
                                                               I love everyone.
 
                                                           Other: 
+                                                          Here is my discord if you want to add me please whisper on Pt first let me know - cisnog.artfully
                                                              I have ability to take peoples nevagive 
                                                              energy and help them have better day. 
                                                              most of time I either as shadow form or
