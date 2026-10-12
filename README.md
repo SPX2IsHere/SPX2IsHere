@@ -995,6 +995,8 @@ but of course Xeno's command go first.
                                                               - people come fight me
                                                               - kidnap egg.
                                                               - ship
+                            
+                                                              - Jaden's death.
                                                               - adding
 
     
