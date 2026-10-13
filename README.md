@@ -289,7 +289,7 @@ Few Cool People I love!(Platonically):
 [Flammy](https://github.com/curiouslatte)
 Mikey
 [Fatal](https://github.com/MagnusWasHere)
-07
+077
 [Awze](https://github.com/Chemicalshot)
 
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
@@ -577,8 +577,6 @@ THERE IS NOTHING I CAN INTRO FOR YOU FREAKS!!!!
 
 
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
-
-![C00lkidd banner 2](https://i.pinimg.com/736x/17/62/7e/17627e522f213b5c15e7378824b9e41e.jpg)
 
 .
 
