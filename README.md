@@ -264,6 +264,7 @@
 Relationships:
 
 wifes:
+
 [Yushie](https://github.com/yyushie?tab=followers)
 077
 
@@ -271,6 +272,7 @@ husbands:
 
 
 childrens:
+
 [Oliver](https://github.com/Oxlivervet)
 [Ashley](https://github.com/Asher-amc)
 [Marion](https://github.com/H0llowStrings)
@@ -280,7 +282,15 @@ Mixi
 Yana
 Roby
 Holly
-                                                           
+
+Few Cool People I love!(Platonically):
+
+[Sammy](https://github.com/oddyseyduo)
+[Flammy](https://github.com/curiouslatte)
+Mikey
+[Fatal](https://github.com/MagnusWasHere)
+07
+[Awze](https://github.com/Chemicalshot)
 
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 
