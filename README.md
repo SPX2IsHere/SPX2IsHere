@@ -178,13 +178,13 @@
 
                                                           Nichmnames:
                                                               Iris/Foxy/Fox/Spoke/
-                                                              ParrotStannis/Stan/Fur
+                                                              Parrot/Stannis/Stan/Fur
 
                                                           Age:
                                                                21
 
                                                           Gender:
-                                                               Fluid/He/She/they/it
+                                                               Fluid/He/She/they/it/xe
 
                                                           Species:
                                                                Human/Shadow/Shapeshifter
@@ -237,7 +237,11 @@
                                                            Allow:
       
                                                               - Free hug
-                                                              - Platonic Love
+                                                              - Platonic Love ( 18+ only. if you
+                                                                under 18. i can only see you as
+                                                                ma friud or childrens.)
+                                                              - Flirts (above 18 only. DO NOT flirt 
+                                                                me if you under 18)
                                                               - adding
 
                                                          **DONT** Allow:
@@ -497,32 +501,35 @@ fire just like the kids me.)
                                                      # General
                                                      
                                                           Name:
-                                                               *C00LKIDD(Minor)*
+                                                               *Uzi Doorman*
 
                                                           Nichmnames:
-                                                               *7E4M C00LKIDD/CK/Kool aid/c00l*
+                                                               *Zi/God*
 
                                                           Age:
-                                                               *13*
+                                                               *18*
 
                                                           Gender:
-                                                               Male
+                                                               Female
 
                                                           Pronouns: 
-                                                               he/him
+                                                               She/Her
 
                                                           Species:
-                                                               Demon
+                                                               Robot
 
                                                           Birthday:
-                                                               Apr 1th.
+                                                               Oct 11th.
 
                                                           Sexuality:
-                                                               not sure
+                                                               Straight
+                                                               
+                                                          Marital status: 
+                                                               Dating with N
 
                                               ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
 
-![C00lkidd 2](https://i.pinimg.com/736x/db/34/66/db346679dbf38446465217b92f5ff894.jpg)
+![Uzi](https://i.pinimg.com/736x/81/7b/06/817b0689bffc8cd30d943e5a029830ff.jpg)
 
                                                 ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
@@ -530,21 +537,21 @@ fire just like the kids me.)
 
                                                            Moods:
 
-                                                              [x] Happy!
-                                                              [x] curious
+                                                              [x] BITE ME
+                                                              [x] IDK
                                                               [ ] adding
 
                                                            Allow:
       
-                                                              - ask before you do anything around him
-                                                              - Fire/Lava
+                                                              - C+H
+                                                              - ragebait
                                                               - adding
  
                                                            **DONT** Allow:
 
-                                                              - Water around him..
+                                                              - Flirt
                                                               - touch 
-                                                              - cover by others
+                                                              - cover by others (UF)
                                                               - adding
 
     
@@ -555,10 +562,8 @@ fire just like the kids me.)
 ╔═══ .·:·.☽✧          ✦          ✧☾.·:·.═══╗
 
 
-C4N W3 P1AY? 1 L0V3 H4V3 S0M3 FUN!! 
-(Please don't touch him, 
-he dislike body tounch. 
-he also dislike water. love touch fire.)
+BITE ME!! 
+THERE IS NOTHING I CAN INTRO FOR YOU FREAKS!!!!
 
 
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
@@ -1130,411 +1135,11 @@ None.
 .
 
 
-                                              # I'm getting Lazy.. so I will just say Others name.
+                                              # I'm getting Lazy.. so you guys have to go ma pronus.cc 
+                                              check everyone here. it will update a lots
+   
 
-                                              ╔═══ .·:·.☽✧                 ✦                   ✧☾.·:·.═══╗
-                                              
-
-                                                          Name: *Wally Darling*
-                                                          Age: *24*
-                                                          Pronouns: *He/HIm*
-                                                          Species: *Puppet*
-                                                          Birthday: *Jul 4th.*
-                                                          Sexuality: *Bisexual*
-                                                          Marital status: *Love Neighbor(YOU)*
-
-![Wally](https://i.pinimg.com/736x/08/4f/a1/084fa123e0212981fa3fda2b7deb30e4.jpg)
-    
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
                                                 
-                                                          Name: *ClownPierce*
-                                                          Age: *24*
-                                                          Pronouns: *He/HIm*
-                                                          Species: *Killer Clown*
-                                                          Birthday: *Mar 19th.*
-                                                          Sexuality: *Bisexual*
-                                                          Marital status: *His Wife and Husband*
-
-![Clown](https://i.pinimg.com/736x/6a/67/39/6a6739acb5687f4b9867f493932e2007.jpg)                                                
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-                                                
-                                                          Name: *Ashswag*
-                                                          Age: *22*
-                                                          Pronouns: *He/HIm*
-                                                          Species: *Human*
-                                                          Birthday: *Jan 16th.*
-                                                          Sexuality: *Bisexual*
-                                                          Marital status: *My gf squiddo!*
-
-![Ash](https://i.pinimg.com/736x/95/4f/3e/954f3e91adb286bf66fedb0a964a9c36.jpg)   
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-    
-                                                          Name: *Squiddo/Bee*
-                                                          Age: *22*
-                                                          Pronouns: *She/Her*
-                                                          Species: *Android/Humnan*
-                                                          Birthday: *May 26th*
-                                                          Sexuality: *Straight*
-                                                          Marital status: *Dating with Ash*
-    
-![Bee](https://i.pinimg.com/736x/de/1a/0d/de1a0d08df66b7b73155fea52af47dd0.jpg) ![Squid](https://i.pinimg.com/736x/cc/db/56/ccdb56423e6371d69048e814da55b67e.jpg)
-                                                 
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-                                                
-                                                          Name: *Spokeishere*
-                                                          Age: *19*
-                                                          Pronouns: *He/HIm*
-                                                          Species: *Human*
-                                                          Birthday: *Jan 14th.*
-                                                          Sexuality: *Bisexual*
-                                                          Marital status: *WHY IS EVERYONE HERE HAVE MATE??*
-
-![Spoke](https://i.pinimg.com/736x/7b/67/87/7b6787fbf3d98756fb9612dbf1f88c02.jpg)
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-                                                
-                                                          Name: *Spokeishere - Kid*
-                                                          Age: *10*
-                                                          Pronouns: *He/HIm*
-                                                          Species: *Bug*
-                                                          Birthday: *Jan 14th.*
-
-![Younger Spoke](https://cdn.pluralkit.me/images/xi/5a2b4prxu6ahblytylbtvxqq.webp)
-    
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-    
-                                                          Name: *Uzi Doorman*
-                                                          Age: *18*
-                                                          Pronouns: *She/Her*
-                                                          Species: *Robot*
-                                                          Birthday: *Oct 11th.*
-                                                          Sexuality: *Straight*
-                                                          Marital status: *Dating with N*
-                                                          
-                                                          BITE ME!! 
-                                                          THERE IS NOTHING I CAN INTRO FOR YOU FREAKS!!!!
-    
-![Uzi](https://i.pinimg.com/736x/81/7b/06/817b0689bffc8cd30d943e5a029830ff.jpg)
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-    
-                                                          Name: *Serial Designation N*
-                                                          Age: *18*
-                                                          Pronouns: *He/Him*
-                                                          Species: *SD Robot*
-                                                          Birthday: *Oct 10th.*
-                                                          Sexuality: *Straight*
-                                                          Marital status: *Dating with Uzi!*
-                                                          
-                                                          Hi! I'm Serial Designation N! 
-                                                          you could just call me N! 
-                                                          Andddd- please don't mind Uzi. 
-                                                          (ps: She is my gf by the way!)
-    
-   ![N](https://i.pinimg.com/736x/d6/f0/8e/d6f08e7089af194559f4fc53ab854fb7.jpg)
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-    
-                                                          Name: *CYN*
-                                                          Age: *16*
-                                                          Pronouns: *She/Her*
-                                                          Species: *Robot/Human?*
-                                                          Birthday: *Jan 10th.*
-                                                          Sexuality: *?*
-    
-                                                          Giggle. Let me go inside of you.
-
-![CYN](https://i.pinimg.com/736x/4e/a4/09/4ea4098ec032e847997414988ea49174.jpg)
-    
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-    
-                                                          Name: *SchoolHouse Sonic*
-                                                          Age: *32*
-                                                          Pronouns: *He/Him*
-                                                          Species: *Hedgehog*
-                                                          Birthday: *???*
-                                                          Sexuality: *?*
-                                                          Marital status: *Single*   
-                                                          
-                                                          This one can only speak few words. 
-                                                          he love his students!
-
-![SH Sonic](https://media1.tenor.com/m/2PjgiowewAwAAAAd/sonic-schoolhouse.gif)
-     
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-    
-                                                          Name: *Rewrite Sonic*
-                                                          Age: *??*
-                                                          Pronouns: *He/Him*
-                                                          Species: *Hedgehog/Demon*
-                                                          Birthday: *Jan 23th.*
-                                                          Sexuality: *??*
-                                                          Marital status: *Single*
-                                                          
-                                                          He cant speak! 
-                                                          he only can do silly laugh and typin!
-
-![R Sonic](https://media1.tenor.com/m/5Hm5yFWYhd4AAAAC/rewrite-rewrite-sonic.gif)
-
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-    
-                                                          Name: *Shadow The Hedgehog*
-                                                          Age: *??*
-                                                          Pronouns: *They/Them*
-                                                          Species: *Ultimate Lifeform*
-                                                          Sexuality: *Homosexual*
-                                                          Marital status: *In love with a idiot Hedgehog*
-
-![Shadow](https://i.pinimg.com/736x/87/48/bb/8748bb9b8612cf71e9228be5debea387.jpg)
-
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-    
-                                                          Name: *Lucifer Morningstar*
-                                                          Age: *??*
-                                                          Pronouns: *He/Him*
-                                                          Species: *Falling Angel*
-                                                          Birthday: *Jan 26th.*
-                                                          Sexuality: *Bisexual*
-                                                          Marital status: *Dating with Bambiii*
-                                                          
-                                                          Call Me Daddy! Wait.. NO- Call me Lu!
-                                                          or your King hehe you know~ 
-                                                          I'm the King of Hell after all. 
-                                                          And I HATE the Bambi..
-
-![Luci](https://i.pinimg.com/736x/f5/81/af/f581af0aa11b84d4e55b136d079e1a66.jpg)
-
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-    
-                                                          Name: *Alastor Louis Hartfelt*
-                                                          Age: *??*
-                                                          Pronouns: *He/Him*
-                                                          Species: *Demon/Human(used to be)*
-                                                          Birthday: *Jan 1th.*
-                                                          Sexuality: *AceAro*
-    
-                                                          Greetings, My dear listeners! 
-                                                          I'm your lovely host, Alastor! 
-                                                          Don't trust the words of Lu.
-
-![Alastor](https://i.pinimg.com/736x/61/37/46/6137462369175742f48f4d360b46e729.jpg)
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-    
-                                                          Name: *Stolas*
-                                                          Age: *??*
-                                                          Pronouns: *He/Him*
-                                                          Species: *Demon Prince*
-                                                          Birthday: *Feb 5th*
-                                                          Sexuality: *Homosexual*
-                                                          Marital status: *Dating with Blitzy~*
-
-![Stolas](https://i.pinimg.com/736x/82/07/3b/82073b5135616a7289e98285df95bc92.jpg)
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-    
-                                                          Name: *Blitzø Buckzo*
-                                                          Age: *34*
-                                                          Pronouns: *He/Him*
-                                                          Species: *Demon IMP*
-                                                          Sexuality: *Bisexual*
-                                                          Marital status: *Dating with Big Bird*
-
-![Blitzo](https://i.pinimg.com/736x/ea/7f/a9/ea7fa9bdb0cdc364a802675f1370bd72.jpg)
-
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-    
-                                                          Name: *Bill Cipher*
-                                                          Age: *??*
-                                                          Pronouns: *He/They*
-                                                          Species: *~~Demon~~/God*
-                                                          Sexuality: *AceAro*
-
-![Bill](https://i.pinimg.com/736x/01/72/30/017230a409c668767129dcae3bf312c9.jpg)
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-    
-                                                          Name: *Docter Who*
-                                                          Age: *42*
-                                                          Pronouns: *He/Him*
-                                                          Species: *God*
-                                                          Birthday: *Nov 23th.*
-                                                          Sexuality: *Straight*
-    
-![DW](https://i.pinimg.com/736x/43/22/2c/43222c0915ca409d9b76bb50a2292ae5.jpg)
-
-  
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-    
-                                                          Name: *Yi Xi*
-                                                          Age: *25*
-                                                          Pronouns: *They/Them*
-                                                          Species: *Human*
-                                                          Birthday: *Mar 15th.*
-                                                          Sexuality: *??*
-    
-![Yi Xi](https://media1.tenor.com/m/is8j3DZWpGgAAAAC/butcher-vanity-yi-xi.gif)
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-                                                
-                                                          Name: *Joshua Niles*
-                                                          Age: *34*
-                                                          Pronouns: *He/HIm*
-                                                          Species: *Human?*
-                                                          Birthday: *Mar 14th.*
-                                                          Sexuality: *Bisexual*
-                                                          Marital status: *You..*
-
-                                                          Fuck off
-                                                          Idc. i just like f- 
-                                                          (u cant said that josh..) 
-                                                          IDFC! I F gay man anyway.
-                                                          (also Josh have D.I.D Joseph is his sys) 
-                                                          STFU
-
-![Josh](https://cdn.pluralkit.me/images/zp/fp4ts2zuff4hg4jxvwbk76tm.webp)
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-                                                
-                                                          Name: *Joseph K. Niles*
-                                                          Age: *34*
-                                                          Pronouns: *He/HIm*
-                                                          Species: *Human?*
-                                                          Birthday: *Mar 14th.*
-                                                          Sexuality: *Bisexual*
-                                                          Marital status: *You~*
-
-                                                          Hello there~ pretty little thing~ hehe.. 
-                                                          oh don't worry it won't hurt much i promise.
-                                                          Josh can't do it? But I can
-
-![Jose](https://cdn.pluralkit.me/images/cl/vhd6oprpxdpwozgxgcmenv6q.webp)
-
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-                                                
-                                                          Name: *Cavil*
-                                                          Age: *34*
-                                                          Pronouns: *He/Him*
-                                                          Species: *Goat*
-                                                          Birthday: *Sep 10th*
-                                                          Sexuality: *Bisexual/Platonic*
-                                                          Marital status: *dating with MR.Smile and MC/YN*
-
-                                                          love jokes
-                                                          (it's one of my oc :3)
-
-![Cavil](https://i.pinimg.com/736x/89/e2/4b/89e24b0528987e96a83b17b27d83ad20.jpg)
-
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-                                                
-                                                          Name: *MR.Smile*
-                                                          Age: *23*
-                                                          Pronouns: *He/Him*
-                                                          Species: *Shadow*
-                                                          Birthday: *Jan 8th*
-                                                          Sexuality: *Bisexual*
-                                                          Marital status: *dating with Cavil and MC/YN*
-
-![Smile](https://i.pinimg.com/736x/07/65/54/07655437982b36403d7bde4547de75d7.jpg)
-
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-                                                
-                                                          Name: *Sarah Honey*
-                                                          Age: *???*
-                                                          Pronouns: *She/Her*
-                                                          Species: *Puppet*
-                                                          Birthday: *Don't exist*
-                                                          Sexuality: *Bisexual*
-                                                          Marital status: *You! Neighbor*
-
-                                                          Hello Neighbor..!
-                                                          this is our first made, 
-                                                          but when i look at you in the eyes, 
-                                                          I know you are the star to my moon.... 
-                                                          do you like moon?
-                                                          (also she is my oc too!!)
-
-![Sarah](https://cdn.pluralkit.me/images/wt/7fw32n2u426jdnbc2bbd4lz4.webp)
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-                                                
-                                                          Name: *¥*?€<+?’ï;**
-                                                          Age: *???*
-                                                          Pronouns: *They/It/He*
-                                                          Species: *Shadow*
-                                                          Birthday: *Don't exist*
-                                                          Sexuality: *Acearo*
-
-                                                          Idk.. I just got here. 
-                                                          idk who am i or my name..
-                                                          but i know im a black thing 
-                                                          sometimes with 
-                                                          red/yellow/white eyes.
-                                                          thats all
-
-![noname](https://i.pinimg.com/1200x/40/f9/f0/40f9f08f5e5ae008c2db43e0bac57a7d.jpg)
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-                                                
-                                                          Name: *Stocking*
-                                                          Age: *???*
-                                                          Pronouns: *She/Her*
-                                                          Species: *Angel/Demon*
-                                                          Sexuality: *Bi/Ace*
-
-![Stocking](https://i.pinimg.com/1200x/f3/8b/fe/f38bfe44a43291c652e16e18ad5de8c0.jpg)
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-                                                
-                                                          Name: *Koro Sensei*
-                                                          Age: *34*
-                                                          Pronouns: *He/Him*
-                                                          Species: *Human?*
-                                                          Sexuality: *Straight*
-
-![Koro sensei](https://i.pinimg.com/736x/fa/04/2a/fa042afb599d1bc9e1398208de29766b.jpg)
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-                                                
-                                                          Name: *Aqua Hoshino*
-                                                          Age: *18*
-                                                          Pronouns: *He/Him*
-                                                          Sexuality: *Straight*
-
-![Aqua](https://i.pinimg.com/736x/24/af/e2/24afe215dcff1ffc192ec508f705f7ad.jpg)
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-                                                
-                                                          Name: *Harlequin*
-                                                          Age: *???*
-                                                          Pronouns: *He/Him*
-                                                          Sexuality: *Straight*
-
-![Harlequin](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSN3g9P0cL9OT_Se0NxiOaOfLpUmlaKnTdBieJ8OkgjsGIHJrKfLN2sK20&s=10)
-
-                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
-    
-                                                          Name: *Cardamom/Bird*
-                                                          Age: *7*
-                                                          Pronouns: *He/Him*
-                                                          Species: *Android/Humnan*
-                                                          Birthday: *May 26th*
-    
-![Cardamom](https://i.pinimg.com/736x/6b/9e/19/6b9e1906facb231f66a38f8ead938191.jpg) ![Bird](https://i.pinimg.com/1200x/87/1c/48/871c48497a18fc95d686db23df5f1cbe.jpg)
-
-                                              ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
-
 
 □□□□□0%
 
