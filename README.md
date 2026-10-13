@@ -612,6 +612,9 @@ THERE IS NOTHING I CAN INTRO FOR YOU FREAKS!!!!
 
                                                           Pronouns: 
                                                                he/him
+                                                               She/Her
+                                                               They/Them
+                                                               Mirror
 
                                                           Species:
                                                                Human/Bird
@@ -963,6 +966,9 @@ but of course Xeno's command go first.
 
                                                           Pronouns: 
                                                                he/him
+                                                               She/Her
+                                                               They/Them
+                                                               Mirror
 
                                                           Species:
                                                                MC YT
@@ -1063,6 +1069,9 @@ None.
 
                                                           Pronouns: 
                                                                he/him
+                                                               She/Her
+                                                               They/Them
+                                                               Mirror
 
                                                           Species:
                                                                MC YT
