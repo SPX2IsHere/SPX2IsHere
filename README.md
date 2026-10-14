@@ -311,6 +311,8 @@ Mikey
 .
 
 # The Voice In My Head 
+The people are with me rn.
+[.](https://pluralkit.xyz/s/aryxjr)
 
                                               ╔═══ .·:·.☽✧                 ✦                   ✧☾.·:·.═══╗
 
