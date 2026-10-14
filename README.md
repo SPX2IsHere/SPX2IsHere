@@ -6,7 +6,7 @@
  [![Hits](https://hits.sh/github.com/SPX2IsHere.svg?label=Civillians&color=c1e2e6&labelColor=8ee43d)](https://hits.sh/github.com/SPX2IsHere/)
  
 ![WELCOME TO OUR HOME](https://i.pinimg.com/1200x/30/02/cb/3002cb46254963e8c316a73a78b3b039.jpg) 
-     ≻─────────────────────────  [α𝗍αᑲ𝗄](https://nosbis.atabook.org/)  ✩  [ѕтяαω](https://irhis666.straw.page/)  ✩  [ɢʊռֆ](https://guns.lol/nosbis)  ✩  [Cαɾԃ](https://nosbis336.carrd.co/)  ✩  [Pσυɳɾ](https://pronouns.cc/@Nosbis)  ✩  [dᵢₛcₒᵣd ₛₑᵣᵥₑᵣ](https://discord.gg/vzkf8CTM5C) ─────────────────────── ≺
+     ≻─────────────────────────  [α𝗍αᑲ𝗄](https://nosbis.atabook.org/)  ✩  [ѕтяαω](https://spx2.straw.page)  ✩  [ɢʊռֆ](https://guns.lol/nosbis)  ✩  [Cαɾԃ](https://nosbis336.carrd.co/)  ✩  [Pσυɳɾ](https://pronouns.cc/@Nosbis)  ✩  [dᵢₛcₒᵣd ₛₑᵣᵥₑᵣ](https://discord.gg/vzkf8CTM5C) ─────────────────────── ≺
 
 
 
