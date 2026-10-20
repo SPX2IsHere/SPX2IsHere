@@ -310,9 +310,9 @@ Mikey
 
 .
 
-# The Voice In My Head 
-The people are with me rn.
-[.](https://pluralkit.xyz/s/aryxjr)
+# Some sys put here. (check others inside link too)
+sys are with me rn.
+[Link?](https://pluralkit.xyz/s/aryxjr)
 
                                               ╔═══ .·:·.☽✧                 ✦                   ✧☾.·:·.═══╗
 
@@ -917,6 +917,7 @@ so i help her type if she is here!
  
                                                            **DONT** Allow:
 
+                                                              - -18 dni
                                                               - adding
 
     
@@ -997,7 +998,7 @@ but of course Xeno's command go first.
 
                                                            Moods:
 
-                                                              [x] Playfu;
+                                                              [x] Playful
                                                               [x] MACE ATTACK!!
                                                               [x] NUKE
                                                               [ ] adding
@@ -1009,6 +1010,7 @@ but of course Xeno's command go first.
  
                                                            **DONT** Allow:
 
+                                                              - -18 dni
                                                               - Dramas
                                                               - touch 
                                                               - command by others
@@ -1154,8 +1156,8 @@ None.
 .
 
 
-                                              # I'm getting Lazy.. so you guys have to go ma pronus.cc 
-                                              check everyone here. it will update a lots
+                                              # I'm getting Lazy.. so you guys have to go ma pronus.cc or 
+                                              pluralkit check everyone there. it will update a lots
    
 
                                                 
