@@ -287,6 +287,7 @@ Few Cool People I love!(Platonically):
 
 [Sammy](https://github.com/oddyseyduo)
 [Flammy](https://github.com/curiouslatte)
+[Wemmy](https://github.com/wemmbus)
 Mikey
 [Fatal](https://github.com/MagnusWasHere)
 077
