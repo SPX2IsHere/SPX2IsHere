@@ -1,7 +1,7 @@
 # 𝓝ꕤ✦ഒ𓍼 / README
  about us
 
- *` WELCOME TO OUR HOME `*
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bitcount+Grid+Single&pause=1000&color=93F799&width=435&lines=Welcom+To+My+Civilization)](https://git.io/typing-svg)
  
  [![Hits](https://hits.sh/github.com/SPX2IsHere.svg?label=Civillians&color=c1e2e6&labelColor=8ee43d)](https://hits.sh/github.com/SPX2IsHere/)
  
