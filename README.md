@@ -278,7 +278,7 @@ childrens:
 [Ashley](https://github.com/Asher-amc)
 [Marion](https://github.com/H0llowStrings)
 [Masker](https://github.com/DoctorHarvergale)
-Chris
+[Chris](https://github.com/ChrisLumine022)
 Mixi
 Yana
 Roby
