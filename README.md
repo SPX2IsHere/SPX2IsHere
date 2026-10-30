@@ -202,7 +202,7 @@
                                                               I love everyone.
 
                                                           Other: 
-                                                             infp 9w2 538
+                                                             infp 2w3 269 sx/sp
                                                              Here is my discord if you want to add me 
                                                              please whisper on Pt first let me know 
                                                                        " cisnog.artfully "
