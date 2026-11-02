@@ -297,6 +297,7 @@ Mikey
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Festive&size=30&pause=1000&color=9DF76E&width=500&lines=I+failed+you+so+many+times%2C+mm;I+committed+so+many+crimes;And+I+was+pretty+sure+myself;You+gave+me+reasons+to+be+somebody+else;Baby%2C+I'm+home+again)](https://git.io/typing-svg)
+
 ![.](https://media1.tenor.com/m/cOHtL93lvvcAAAAd/wifies-parrotx2.gif)
 .
 
