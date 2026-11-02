@@ -300,27 +300,6 @@ Mikey
 
 <img src="https://cdn.discordapp.com/attachments/1469221861530276005/1566664452538110083/0B4013C8-5656-4BEE-86D0-147C1E6AD4CE2.jpg?ex=6ae95d78&is=6ae80bf8&hm=66cb302e1e9f2056f585a7fb344b018396a97658e0bdfa903857ac9828ad9d33&" data-canonical-src="https://cdn.discordapp.com/attachments/1469221861530276005/1566664452538110083/0B4013C8-5656-4BEE-86D0-147C1E6AD4CE2.jpg?ex=6ae95d78&is=6ae80bf8&hm=66cb302e1e9f2056f585a7fb344b018396a97658e0bdfa903857ac9828ad9d33&" width="373.5" height="188.5" />[![Typing SVG](https://readme-typing-svg.demolab.com?font=Rubik+Wet+Paint&pause=1000&color=836192&width=500&lines=I+thought+that+I+could+run+away;I+had+nothing+more+to+say;I+was+pretty+sure+myself;You+gave+me+reasons+to+be+somebody+else)](https://git.io/typing-svg)
 
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
 
 □□□□□0%
 
