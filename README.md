@@ -296,7 +296,7 @@ Mikey
 
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Festive&size=30&pause=1000&color=9DF76E&width=500&lines=I+failed+you+so+many+times%2C+mm;I+committed+so+many+crimes;And+I+was+pretty+sure+myself;You+gave+me+reasons+to+be+somebody+else;Baby%2C+I'm+home+again)](https://git.io/typing-svg) <img src="https://media1.tenor.com/m/cOHtL93lvvcAAAAd/wifies-parrotx2.gif" data-canonical-src="https://media1.tenor.com/m/cOHtL93lvvcAAAAd/wifies-parrotx2.gif" width="648" height="240" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Festive&size=30&pause=1000&color=9DF76E&width=500&lines=I+failed+you+so+many+times%2C+mm;I+committed+so+many+crimes;And+I+was+pretty+sure+myself;You+gave+me+reasons+to+be+somebody+else;Baby%2C+I'm+home+again)](https://git.io/typing-svg) <img src="https://media1.tenor.com/m/cOHtL93lvvcAAAAd/wifies-parrotx2.gif" data-canonical-src="https://media1.tenor.com/m/cOHtL93lvvcAAAAd/wifies-parrotx2.gif" width="548" height="240" />
 
 <img src="https://onlinepngtools.com/images/examples-onlinepngtools/empty-transparent.png" data-canonical-src="https://onlinepngtools.com/images/examples-onlinepngtools/empty-transparent.png" width="300" height="300" /> [![Typing SVG](https://readme-typing-svg.demolab.com?font=Rubik+Wet+Paint&size=30&pause=1000&color=836192&width=700&lines=I+thought+that+I+could+run+away;I+had+nothing+more+to+say;I+was+pretty+sure+myself;You+gave+me+reasons+to+be+somebody+else)](https://git.io/typing-svg)
 .
