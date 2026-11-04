@@ -270,38 +270,29 @@
 
 ╔═══ .·:·.☽✧          ✦          ✧☾.·:·.═══╗
 
-Relationships:
 
-wifes:
+<details>
+      <summary> Relationships: </summary>
+<summary> wifes </summary>  
+ 
+[Yushie](https://github.com/yyushie?tab=followers) 077
 
-[Yushie](https://github.com/yyushie?tab=followers)
-077
-
-husbands:
+<summary> husbands </summary>
 
 
-childrens:
+<summary> childrens </summary>  
 
-[Oliver](https://github.com/Oxlivervet)
-[Ashley](https://github.com/Ashen-prst)
-[Marion](https://github.com/H0llowStrings)
-[Masker](https://github.com/DoctorHarvergale)
-[Chris](https://github.com/ChrisLumine022)
-Mixi
-Yana
-Roby
-Holly
+[Oliver](https://github.com/Oxlivervet) [Ashley](https://github.com/Ashen-prst) [Marion](https://github.com/H0llowStrings) [Masker](https://github.com/DoctorHarvergale) [Chris](https://github.com/ChrisLumine022) Mixi Yana Roby Holly
 
-Few Cool People I love!(Platonically):
+<summary> oomfies </summary>  
 
-[Sammy](https://github.com/oddyseyduo)
-[Flammy](https://github.com/curiouslatte)
-[Wemmy](https://github.com/wemmbus)
-Mikey
-[Fatal](https://github.com/MagnusWasHere)
-077
-[Awze](https://github.com/Chemicalshot)
-[Ember](https://github.com/Iiquidsmooth)
+Jaden [Marple](https://github.com/THENIGHTOF75) [Snvffy](https://github.com/snvffyisntcool) [Teahue](https://github.com/Teatimehue) [Meddy](https://github.com/medkittys) [Shadow](https://github.com/deadfrequencyy) [null](https://github.com/driedfishhlab) [Wifies](https://github.com/odyssial) [Nyankit](https://github.com/nyankit)
+
+<summary> cFew Cool People I love!(Platonically) </summary>  
+
+[Sammy](https://github.com/oddyseyduo) [Flammy](https://github.com/curiouslatte) [Wemmy](https://github.com/wemmbus) Mikey [Fatal](https://github.com/MagnusWasHere) [Awze](https://github.com/Chemicalshot) [Ember](https://github.com/Iiquidsmooth)
+
+</details>
 
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 
