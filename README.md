@@ -173,12 +173,20 @@
                                                      # General
 
                                                           Name:
-                                                              Irhis/Cisong
+                                                              Irhis/Cisong/Vivi
                                                              (or js call the character I in!)
 
                                                           Nichmnames:
-                                                              Iris/Foxy/Fox/Spoke/
-                                                              Parrot/Stannis/Stan/Fur
+                                                              Iris
+                                                              Foxy
+                                                              Fox
+                                                              Spoke
+                                                              Parrot
+                                                              Stannis
+                                                              Stan
+                                                              Fur
+                                                              Vi
+                                                              V
 
                                                           Age:
                                                                21
@@ -293,6 +301,7 @@ Mikey
 [Fatal](https://github.com/MagnusWasHere)
 077
 [Awze](https://github.com/Chemicalshot)
+[Ember](https://github.com/Iiquidsmooth)
 
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 
