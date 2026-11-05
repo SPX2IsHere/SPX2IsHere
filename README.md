@@ -287,11 +287,11 @@
 
 <summary> oomfies </summary>  
 
-Jaden [Marple](https://github.com/THENIGHTOF75) [Snvffy](https://github.com/snvffyisntcool) [Teahue](https://github.com/Teatimehue) [Meddy](https://github.com/medkittys) [Shadow](https://github.com/deadfrequencyy) [null](https://github.com/driedfishhlab) [Wifies](https://github.com/odyssial) [Nyankit](https://github.com/nyankit)
+Jaden [Marple](https://github.com/THENIGHTOF75) [Snvffy](https://github.com/snvffyisntcool) [Teahue](https://github.com/Teatimehue) [Meddy](https://github.com/medkittys) [Shadow](https://github.com/deadfrequencyy) [null](https://github.com/driedfishhlab) [Wifies](https://github.com/odyssial) [Nyankit](https://github.com/nyankit) [Ember](https://github.com/Iiquidsmooth)
 
 <summary> cFew Cool People I love!(Platonically) </summary>  
 
-[Sammy](https://github.com/oddyseyduo) [Flammy](https://github.com/curiouslatte) [Wemmy](https://github.com/wemmbus) Mikey [Fatal](https://github.com/MagnusWasHere) [Awze](https://github.com/Chemicalshot) [Ember](https://github.com/Iiquidsmooth)
+[Sammy](https://github.com/oddyseyduo) [Flammy](https://github.com/curiouslatte) [Wemmy](https://github.com/wemmbus) Mikey [Fatal](https://github.com/MagnusWasHere) [Awze](https://github.com/Chemicalshot) 
 
 </details>
 
