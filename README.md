@@ -251,6 +251,7 @@
                                                                 ma friud or childrens.)
                                                               - Flirts (above 18 only. DO NOT flirt 
                                                                 me if you under 18)
+                                                              - gift ponies
                                                               - adding
 
                                                          **DONT** Allow:
